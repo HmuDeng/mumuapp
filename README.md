@@ -37,7 +37,7 @@
 
 ---
 ## 💬 ติดต่อ
-📬 Discord: https://discord.gg/mumu59](https://discord.gg/rbTz8K5UT5
+📬 Discord: [Streamlabs](https://discord.gg/rbTz8K5UT5))
 
 หากมีคำถาม ข้อเสนอแนะ หรืออยากคุยกับผู้พัฒนา  
 แวะมาเจอกันที่ Discord ได้เลยน้า~ 🍰✨  
